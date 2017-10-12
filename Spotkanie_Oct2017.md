@@ -5,7 +5,6 @@
 
 a) Pierwsze spotkanie za nami. Dziekuję wszystkim, którzy byli. Szkoda, że nie każdy dał radę.
 b) Wszystkie wnioski ze spotkania znajdziecie poniżej.
-
 c) Kolejne oficjalne spotkanie planowane jest na 13 GRUDNIA 2017.
 
 
